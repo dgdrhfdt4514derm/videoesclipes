@@ -1,11 +1,12 @@
-Video doña Carlota Twitter: el clip de la abuela disparando se hace viral
+Video doña Carlota Twitter el clip de la abuela disparando se hace viral
 
-¿Viste el video filtrado de doña Carlota disparando en Twitter?, te contamos lo que sucedió y quienes son los involucrados.
 
-Imagen de Video doña Carlota Twitter: el clip de la abuela disparando se hace viral
-El video filtrado de Doña Carolta disparando causa revuelo en redes sociales. - Diseño: Tunota
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
-En las últimas horas, una mujer de 74 años identificada como Carlota N, se ha convertido en tendencia después que disparara en contra de dos personas en una vivienda de Chalco, en el estado de México, la difusión de un clip titulado como "Video doña Carlota Twitter", se han convertido en tendencia.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 El incidente provocado por la mujer adulta dejo como saldo la muerte de dos hombres, por su parte la Fiscalía de Justicia del Estado de México ((FGJEM) confirmó la detención de la mujer, quien es investigada por su presunta participación en los hechos ocurridos el pasado 1 de abril. 
 
